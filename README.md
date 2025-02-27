@@ -1,6 +1,6 @@
 # 夜煞云机场官网地址
 
-最新地址：[night-furyx.com](https://a.yesha.pro/index.php#/register?code=RbOoCJB9)
+最新地址：[night-furyx.com](https://vip.loveyesha.com/index.php#/register?code=RbOoCJB9)
 
 ## 夜煞云介绍
 
